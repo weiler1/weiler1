@@ -1,3 +1,5 @@
 NFT enthusiast and maker.  
 
-Looking for freelance work. 
+NEAR Ecosystem lover.
+
+Co Founder and CTO @ NEARN Labs
