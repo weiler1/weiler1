@@ -1,1 +1,1 @@
-Resurgence Labs, NEARN Labs.
+Resurgence Labs, Dark Sun Labs.
